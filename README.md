@@ -1,3 +1,3 @@
-bow wowo nastyy dawwgg or soemthing
+<div align=center>
 
-wip bc i m making a new one for mc-x wow...
+ohio thinks
