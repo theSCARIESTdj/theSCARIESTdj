@@ -1,3 +1,3 @@
 <div align=center>
 
-$${\color{#6a1026}not feeling my best \space \color{#3d0d2f}, not feeling my worst \space \color{#110a35}. i'll get there eventually}$$
+<img src="https://readme-typing-svg.demolab.com?font=Fontdiner+Swanky&size=23&pause=50&color=ea1212&center=true&vCenter=true&width=435&lines=IM+DEAD+.">
